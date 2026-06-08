@@ -1,0 +1,2 @@
+# Weighted-Comforter-King-Experience-Luxury-Comfort-and-Better-Sleep
+A comfortable sleep environment can make a significant difference in how rested and refreshed you feel each morning. For those with spacious beds, a weighted comforter king offers the perfect combination of luxury, warmth, and full-body comfort. Designed to provide ample coverage and evenly distributed weight, a weighted king comforter
